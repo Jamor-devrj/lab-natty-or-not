@@ -1,4 +1,4 @@
-# Título do Projeto Extremamente Aesthetic ;)
+# CRIANDO IMAGENS COM INTELIGÊNCIA ARTIFICIAL 🤖😺👨🏼‍💻 ;
 
 ## 📒 Descrição
 Resolvi usar a imaginação e criar imagens com o uso de de IA's.
