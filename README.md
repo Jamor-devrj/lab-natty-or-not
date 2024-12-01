@@ -1,4 +1,4 @@
-# CRIANDO IMAGENS COM INTELIGÊNCIA ARTIFICIAL 🤖😺👨🏼‍💻 ;
+# CRIANDO IMAGENS COM IA's 🤖😺👨🏼‍💻 ;
 
 ## 📒 Descrição
 Resolvi usar a imaginação e criar imagens com o uso de de IA's.
